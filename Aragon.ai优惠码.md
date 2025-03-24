@@ -1,4 +1,4 @@
-# Aragon.ai优惠码｜2025年全方案享15%折扣【LUCKYDOG专属】
+# Aragon.ai优惠码｜2025年全方案享15%折扣【优惠码:LUCKYDOG】
 
 👉 [立即领取优惠码！](https://bit.ly/4iwUYat)
 
